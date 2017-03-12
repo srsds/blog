@@ -13,4 +13,4 @@ What else do you need from me??
 
 ### my Curriculam Vitate :P
 
-To be honest, I'm having some trouble to say the same detail in this blog, so why don't you just watch [my webiste](http://srsds.github.io) and it will answer **all** your questions and some stuff about me.
+To be honest, I'm having some trouble to say the same detail in this blog, so why don't you just watch [my website](http://srsds.github.io) and it will answer **all** your questions and some stuff about me.
